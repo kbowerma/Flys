@@ -32,8 +32,8 @@ July 2017 Fly Fish Food [Article](https://www.flyfishfood.com/2016/07/bugle-budd
 
 
 
-<img src="https://1.bp.blogspot.com/-A7gvJsDUhQU/V4z3_TZP-OI/AAAAAAAADCM/KMecu3lFXe45n9srhPuKZq0vLD_QBdzKwCLcB/s400/Bugle-Buddy-BL.jpg" width="45%">
-<img src="https://4.bp.blogspot.com/-sgK-b97shTA/V4z4Ln8Dt5I/AAAAAAAADCQ/eccDc8FOSPUVDw_1EJFndRLnH6tH1VfqQCLcB/s300/Bugle-Buddy-BR.jpg" width="45%">
+<img src="https://1.bp.blogspot.com/-A7gvJsDUhQU/V4z3_TZP-OI/AAAAAAAADCM/KMecu3lFXe45n9srhPuKZq0vLD_QBdzKwCLcB/s400/Bugle-Buddy-BL.jpg" width="40%">
+<img src="https://4.bp.blogspot.com/-sgK-b97shTA/V4z4Ln8Dt5I/AAAAAAAADCQ/eccDc8FOSPUVDw_1EJFndRLnH6tH1VfqQCLcB/s300/Bugle-Buddy-BR.jpg" width="40%">
 
 **Chartruse** 
 * Hook: Daiichi 2557 Intruder Trailer Hook - 2     
