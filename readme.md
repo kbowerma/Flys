@@ -114,6 +114,7 @@ July 2014 Fly Fish Food [Article](https://www.flyfishfood.com/2014/07/low-fat-mi
 * Head1: Bruiser Blend - Brown Olive 
 * Head2: Bruiser Blend - Canary 
 * Eyes: Fish Skull Living Eyes - Fire 6mm 
+
 ## Attractors
 
 December 2018 Fly Fish Food [Humongous Blank Saver](https://www.flyfishfood.com/2018/12/humongous-blank-saver.html), [video](https://youtu.be/U5POx0eupUI)
@@ -130,8 +131,41 @@ December 2018 Fly Fish Food [Humongous Blank Saver](https://www.flyfishfood.com/
 * Hackle: Whiting Eurohackle Saddle - Grizzly Dyed Olive		 
 * Flash: Dyed Pearl Flashabou - 6966 - Purple	
 
+## Intruder
 
+### Ben Paul's Micro Intruder
+May 2017 OPST [YouTube](https://www.youtube.com/watch?v=ObtvRQkZ75g)
 
+![](https://pureskagit.com/wp-content/uploads/2017/08/Micro-Intruder-600x380-600x380.jpg)
 
+* Hook: streamer, size 10
+* Thread: 140 Denier, Olive
+* Eyes: Lead dumbbell eyes, extra small, black
+* Butt: Fine Shrimp Pink Chenille
+* Tails: OPST Barred Ostrich, Yellow Green
+* Rib: Mono thread, 10/0
+* Body: Lateral Scale, Black
+* Shoulder: Olive Sculpin Wool, Lady Amherst, 
+* clear barred predator wrap and UV dark olive, Ice Dub
+* Wings: saddle hackles, orange
 
+### White Olive Micro Intruder
 
+Feb 2019 Reddit: [r/flytying](https://www.reddit.com/r/flytying)  [u/Streamerstripper](https://www.reddit.com/user/Streamerstripper/)
+
+![](https://preview.redd.it/dgv8zb2satd21.jpg?width=960&crop=smart&auto=webp&s=bb906e8fb41e0fd815cf41ec026602c38063e9fa)
+
+* hook 3X long streamer hook #8 
+* eyes small dumbell
+* butt olive chenille 
+* tail centepede legs. 
+* body any kind of tinsel or whatever you have. 
+* loop:  light olive ice dub,clear barred predator wrap, white and olive ostrich. In front of that are small 
+
+### Micro intruder style swing fly size 8
+
+Feb 2019 Reddit: [r/flytying](https://www.reddit.com/r/flytying/comments/algh7s/micro_intruder_style_swing_fly_size_8/), [u/Streamerstripper](https://www.reddit.com/user/Streamerstripper/)
+
+![](https://preview.redd.it/z8iph94u4md21.jpg?width=960&crop=smart&auto=webp&s=c80874267e48c6300583791c5675f19a595cb4bf)
+
+Almost the same but looks like no legs and Lady Amherst in loop
