@@ -162,7 +162,7 @@ Almost the same but looks like no legs and Lady Amherst in loop
 
 ## McTags Foam Trouser Worm Carp Fly
 
-Jan 2013 [Fly Carpin]()
+Jan 2013 [Fly Carpin](http://www.flycarpin.com/2011/03/mctages-foam-head-stand-carp-worm-final.html)
 [Video](https://youtu.be/0QnpVQdR4Pc)
 
 ![](http://2.bp.blogspot.com/-1TGuHPMPQGI/UVEqYdbdVpI/AAAAAAAADGk/Gxl1hrAbE0w/s400/McTage_Foam_Trouser_Worm_2.jpg)
