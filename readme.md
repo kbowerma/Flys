@@ -79,6 +79,19 @@ March 2017,  Fly Fish Food: [article](https://www.flyfishfood.com/2017/06/carp-c
 * Legs: Chicone's Crusher Legs - Brown Barred Clear - Regular     
 * Body: Whole Squirrel Skin - Natural Fox   
 
+### Mike's Gorgon Craw Olive
+
+![](https://cdn.shopify.com/s/files/1/1017/0133/products/5E1421_b1642e2e-45e6-4257-96ea-74391b6b61fa_1024x1024.jpg?v=1549814239)
+
+
+Hook: #8 Stinger
+Thread: Olive 6/0
+Tail Olive rubber hackle (Daddy Long Legs) two ollive sli legs
+body: Olive Fur
+wing: olive cdc
+Eyes:  gold bead chain
+
+
 
 
 ---
